@@ -1,2 +1,3 @@
 # Inspiration
-![image](https://github.com/user-attachments/assets/6855e610-607e-4b28-b3fb-ec9b91301a1f)
+![image](https://github.com/user-attachments/assets/952e9d43-3d1c-437f-978d-2c737daac790)
+
